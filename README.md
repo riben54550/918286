@@ -19,4 +19,4 @@
 总的来说，真正能在“日本AV免费”这个激烈竞争关键词中脱颖而出的内容，必须兼顾资源丰富性、播放体验、SEO结构优化与用户隐私保护。只有满足这些综合需求，才能赢得用户的点击和搜索引擎的青睐，从而实现稳定且靠前的自然排名。
 
 
-<span style="display:none;">[Canonical link]( https://github.com/ribenyi1021/918286 ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/riben54550/918286 ）</span>
